@@ -22,9 +22,6 @@
 >Criei este espaço para registrar minha evolução, compartilhar projetos e acompanhar meu progresso ao longo do tempo.
 >Aqui você vai encontrar exercícios, estudos e alguns projetos que fazem parte da minha jornada na área.
 
-🩸 **𝔈𝔰𝔱𝔲𝔡𝔞𝔫𝔱𝔢 𝔡𝔢 𝔄𝔫á𝔩𝔦𝔰𝔢 𝔢 𝔇𝔢𝔰𝔢𝔫𝔳𝔬𝔩𝔳𝔦𝔪𝔢𝔫𝔱𝔬 𝔡𝔢 𝔖𝔦𝔰𝔱𝔢𝔪𝔞𝔰**
-
-🩸 **𝔉𝔞𝔰𝔠𝔦𝔫𝔞𝔡𝔞 𝔭𝔬𝔯 𝔡𝔞𝔡𝔬𝔰, 𝔭𝔞𝔡𝔯õ𝔢𝔰 𝔢 𝔢𝔰𝔱𝔯𝔲𝔱𝔲𝔯𝔞𝔰**
 ---
 
 ## 🩸 𝕸𝖊𝖚𝖘 𝕲𝖗𝖆𝖋𝖎𝖈𝖔𝖘
