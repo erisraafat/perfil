@@ -2,7 +2,7 @@
 
 <div align="center">
 
-# 𓋹 Éris Raafat 𓋹
+# 𓋹 Carmilla Raafat 𓋹
 
 <img src="https://readme-typing-svg.demolab.com?font=Iosevka&size=24&pause=1000&color=8B0000&center=true&vCenter=true&width=800&lines=I+do+not+code...+I+conjure.;Systems%2C+data+and+power.;Welcome+to+my+domain." />
 
